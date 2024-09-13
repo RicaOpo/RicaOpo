@@ -9,4 +9,3 @@
 - 🤔 I’m looking for help with ...
 - 😄 Pronouns: SHE /HER
 - ⚡ Fun fact: I think I will love coding once I learn the ropes
--->
